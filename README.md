@@ -1,3 +1,3 @@
 20243105 Hayeon101
-Kookmin univ.
+Kookmin university
 Computer Science
